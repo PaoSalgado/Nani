@@ -15,6 +15,9 @@ Te responderé con información confiable, consejos de mamás reales y palabras 
 - Meditaciones o recordatorios para calmar la mente.
 - Frases que te ayuden en un día difícil.  
 
+Cuanta más información nos compartas sobre tu bebé (sus patrones de sueño, alimentación, cambios de humor o cualquier detalle), **mejor podremos entenderlo y acompañarte de forma personalizada**.  
+Así podremos identificar más rápido lo que le está pasando y ofrecerte respuestas y consejos más acertados, adaptados a tu bebé y a tu momento.
+
 🌸 Aquí no hay juicios ni expectativas.  
 Solo un espacio seguro, creado para recordarte que no estás sola y que lo estás haciendo bien, incluso cuando sientes que no.
 
