@@ -1,5 +1,3 @@
-🌟 Hitos y descubrimientos 🌟
--
 
 A esta edad, los ciclos de sueño comienzan a alargarse, pero tu bebé sigue despertándose para alimentarse.
 Puede empezar a mostrar un patrón más regular entre día y noche.
